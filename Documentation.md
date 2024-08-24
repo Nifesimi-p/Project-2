@@ -22,7 +22,7 @@ Here is a Picture of Everest and me.
 
 
 
-[REVIEW OF THE FUNDAMENTALS OF FAITH](https://docs.google.com/document/d/1NLaAR_RfMBsyP8kxlDnnsw_C6rENR0iLp-vPQBRLDV4/edit?usp=sharing)
+[REVIEW OF THE FUNDAMENTALS OF FAITH](https://docs.google.com/document/d/1zMiuE8TmgEUMc_NIKmiYXT5SzZkqbT2gn48HajddEag/edit?usp=sharing)
 
 
 
