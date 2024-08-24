@@ -2,7 +2,7 @@
 *My name is Olowookere Precious. I love animals alot*.
 The name of my favourite pet is **Everest**.
 Here is a Picture of Everest and me.
-![this is my first picture](./image%202.JPG 'Everest and me' )
+![this is my first picture](./image-2.JPG 'Everest and me' )
 
 
 
